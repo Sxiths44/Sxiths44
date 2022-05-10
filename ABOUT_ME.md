@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Sxiths44
+- 👀 I’m interested in ... PROGRAMMING
+- 🌱 I’m currently learning ... CODING LANGUAGES
